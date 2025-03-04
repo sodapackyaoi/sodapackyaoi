@@ -30,8 +30,12 @@ i have trouble socially interacting :33 but i may be more open to u if youre chi
 <p align="center">
   <ins> +more!! </ins>
 
-*phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args, tr:ud, a
+*phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args, tr:ud,
 animation vs animator*
+
+![tumblr_71e5d3c3898dad202510c4273437806f_4ca6b55e_100](https://github.com/user-attachments/assets/b4c6e357-0564-417c-bbfe-37deeb392cf6)
+
+
 ![tumblr_68e33e723b71e8f891d325e6a28349b9_ec895392_1280](https://github.com/user-attachments/assets/6759fe4c-d583-4173-b708-698405d67a9c)
 
 *credit: https://www.tumblr.com/omnianightclub/748560589422559232/%F0%9D%9C%97-sk8board-graphics?source=share*
