@@ -31,7 +31,7 @@ i have trouble socially interacting :33 but i may be more open to u if youre chi
   <ins> +more!! </ins>
 
 *phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args, tr:ud,
-animation vs animator*
+animation vs animator, forsaken, dandys world*
 
 ![tumblr_71e5d3c3898dad202510c4273437806f_4ca6b55e_100](https://github.com/user-attachments/assets/b4c6e357-0564-417c-bbfe-37deeb392cf6)
 
