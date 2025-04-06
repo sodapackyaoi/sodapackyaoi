@@ -1,10 +1,13 @@
-![tumblr_68e33e723b71e8f891d325e6a28349b9_ec895392_1280](https://github.com/user-attachments/assets/6759fe4c-d583-4173-b708-698405d67a9c)
+![Tumblr_l_140184528790585](https://github.com/user-attachments/assets/3fe0ab72-939c-41b9-ba57-1c5341eb0f70)
+
 
 <p align="center">
-<ins> "WATCH THIS TRICK!!" </ins>
+>_<
 </p>
 
-![Tumblr_l_70052304214327](https://github.com/user-attachments/assets/acab5eae-e835-4315-9a92-57eb5d6349b3)
+![DINNER!_20250302002529](https://github.com/user-attachments/assets/4a4d538f-adea-4b23-94ea-0c8735b2a101)
+
+
 
 <p align="center"> <ins> nyxx / nix </ins> ✦ she / her ✧ <ins> aro-ace </ins> ✦ minor ✧ nov. 12 ✧<ins> filipino!! </ins> 🇵🇭 ✦ gmt +8 </p> 
 
@@ -33,9 +36,6 @@ i have trouble socially interacting :33 but i may be more open to u if youre chi
 *phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args, tr:ud,
 animation vs animator, forsaken, dandys world*
 
-![tumblr_71e5d3c3898dad202510c4273437806f_4ca6b55e_100](https://github.com/user-attachments/assets/b4c6e357-0564-417c-bbfe-37deeb392cf6)
+![Tumblr_l_140184528790585](https://github.com/user-attachments/assets/147928a9-01fb-4c53-af46-e79423cbf6c3)
 
 
-![tumblr_68e33e723b71e8f891d325e6a28349b9_ec895392_1280](https://github.com/user-attachments/assets/6759fe4c-d583-4173-b708-698405d67a9c)
-
-*credit: https://www.tumblr.com/omnianightclub/748560589422559232/%F0%9D%9C%97-sk8board-graphics?source=share*
