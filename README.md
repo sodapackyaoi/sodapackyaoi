@@ -16,7 +16,7 @@
 ![43688036](https://github.com/user-attachments/assets/b92ff773-d209-4b30-afe8-4e49fe464552) ***BYI!!*** 
 
 <p align="center">
-i have trouble socially interacting :33 but i may be more open to u if youre chill, and have the same interests as me!! w2i most of the time, and feel free to c+h, i dont mind!! also, feel free 2 friend me on roblox ^w^, i barely get to play with any1 there (ignore that i have 200+ friends, im too lazy to clear them) </p>
+i have trouble socially interacting :33 but i may be more open to u if youre chill, and have the same interests as me!! w2i most of the time, and feel free to c+h, i dont mind!! also, feel free 2 friend me on roblox ^w^, i barely get to play with any1 there</p>
 
 ![43688036](https://github.com/user-attachments/assets/b92ff773-d209-4b30-afe8-4e49fe464552) ***DNI!!*** 
 
@@ -34,7 +34,7 @@ i have trouble socially interacting :33 but i may be more open to u if youre chi
   <ins> +more!! </ins>
 
 *phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args, tr:ud,
-animation vs animator, forsaken, dandys world*
+animation vs animator, forsaken, dandys world, die of death*
 
 ![Tumblr_l_97997363508531](https://github.com/user-attachments/assets/23af4b2a-b712-4cc3-a857-9052bffb8ceb)
 
