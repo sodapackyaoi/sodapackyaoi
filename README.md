@@ -28,7 +28,7 @@ i have trouble socially interacting 3: but i may be more open to u if youre chil
 ![Tumblr_l_28933409111262](https://github.com/user-attachments/assets/c8f31821-5096-4810-9759-18716eb4709a)***DNI!!*** 
 
 <p align="center">
-  basic dni, just dont b a weirdo (Dni if u hate yaoi.../nsrs)
+  basic dni, just dont b a weirdo
 
 ![ihasafacelulz-jx1dx1 (3)](https://github.com/user-attachments/assets/3ed2a051-7f84-4dbd-bef0-ffb4946fb775)
 
