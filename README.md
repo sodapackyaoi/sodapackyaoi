@@ -1,4 +1,4 @@
-![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
+..... ![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
 
 <p align="center">
 <ins> YOU.NEED.TO.COMPREHEND </ins>
@@ -41,6 +41,11 @@ i have trouble socially interacting :33 but i may be more open to u if youre chi
 *phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args (mainly those posted by senprista), tr:ud,
 animation vs animator, forsaken, dandys world, die of death*
 
+<p align="center">
+  <ins> music!! </ins>
+  
+*FEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYL and vocaloid ig*
+
 ![IMG_20250416_001230](https://github.com/user-attachments/assets/af02c763-e84c-4247-964e-59f46ea5f7a6)
 
 -----------------------------
@@ -53,6 +58,6 @@ animation vs animator, forsaken, dandys world, die of death*
 ![IMG_20250416_002305](https://github.com/user-attachments/assets/a86cc749-cea8-4afa-a013-4eccb5655e82)
 ???.?
 
-![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
+![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44).....
 
 
