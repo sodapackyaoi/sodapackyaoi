@@ -1,15 +1,10 @@
  ![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
 
 <p align="center">
-<ins> YOU.NEED.TO.COMPREHEND </ins>
+<ins> LET.ME.IN </ins>
 </p>
 
 ![IMG_20250416_001150](https://github.com/user-attachments/assets/54afa4bd-a0d4-40c8-a930-acd05bdfe15e)
-
-<p align="center">
-<ins> WHOS.IN.CONTROL </ins>
-</p>
-
 
 
 
