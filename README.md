@@ -1,4 +1,4 @@
- ![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
+![Tumblr_l_1268950646998](https://github.com/user-attachments/assets/85e59a20-0370-41ee-821f-875c7e89dcfc)
 
 <p align="center">
 <ins> LET.ME.IN </ins>
@@ -44,10 +44,11 @@ animation vs animator, forsaken, dandys world, die of death, hangout game series
 <p align="center">
   <ins> music!! </ins>
   
-*femtanyl, vocaloid (vane lily, maretu, deco *27, 32ki, sawtowne, nakiso, kikuo, iyowa, ro2noki, cosmo@bosou-p, kairiki bear, mafu mafu and more) nastyona, tv girl, mitski, cg5, jack stauber, lemon demon, will wood, tally hall, little purr man, stomach book, sir mix-alot, machine girl, milkypossum, mother mother, mr kitty, spellcasting, multiple roblox osts and more*
+*femtanyl, vocaloid (vane lily, maretu, deco 27, 32ki, sawtowne, nakiso, kikuo, iyowa, ro2noki, cosmo@bosou-p, kairiki bear, mafu mafu and more) nastyona, tv girl, mitski, cg5, jack stauber, lemon demon, will wood, tally hall, little purr man, stomach book, sir mix-alot, machine girl, milkypossum, mother mother, mr kitty, spellcasting, multiple roblox osts and more*
 
 ![ihasafacelulz-roblox](https://github.com/user-attachments/assets/da36b457-71f6-49cc-8ce4-7a49a23bca63)
 
-![Tumblr_l_28858123701488](https://github.com/user-attachments/assets/383d4a4b-23d6-410d-aa64-7bb1b01bce44)
+![Tumblr_l_1268950646998](https://github.com/user-attachments/assets/34536ee1-08b0-4fa9-8920-70359b17d653)
+
 
 
