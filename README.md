@@ -44,7 +44,7 @@ animation vs animator, forsaken, dandys world, die of death, hangout game series
 <p align="center">
   <ins> music!! </ins>
   
-*FEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYLFEMTANYL and vocaloid ig*
+*femtanyl, vocaloid (vane lily, maretu, deco *27, 32ki, sawtowne, nakiso, kikuo, iyowa, ro2noki, cosmo@bosou-p, kairiki bear, mafu mafu and more) nastyona, tv girl, mitski, cg5, jack stauber, lemon demon, will wood, tally hall, little purr man, stomach book, sir mix-alot, machine girl, milkypossum, mother mother, mr kitty, spellcasting, multiple roblox osts and more*
 
 ![ihasafacelulz-roblox](https://github.com/user-attachments/assets/da36b457-71f6-49cc-8ce4-7a49a23bca63)
 
