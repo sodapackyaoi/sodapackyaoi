@@ -1,6 +1,6 @@
 ![Tumblr_l_1268950646998](https://github.com/user-attachments/assets/85e59a20-0370-41ee-821f-875c7e89dcfc)
 
-![](https://komarev.com/ghpvc/?username=sodapackyaoi&label=ANYWHO.ITS.BETTER.TO.ASSIMILATE.THAN.EXPLAIN&color=red)
+![](https://komarev.com/ghpvc/?username=sodapackyaoi&label=⚠️;;ANYWHO.ITS.BETTER.TO.ASSIMILATE.THAN.EXPLAIN&color=red)
   
 <p align="center">
 <code style=color:red>LET.ME.IN</code>
