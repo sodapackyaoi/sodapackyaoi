@@ -16,7 +16,7 @@
 <code style="color : red">***BYI!!***</code>
 
 <p align="center">
-i have trouble socially interacting 3: but i may be more open to u if youre chill, and have the same interests as me!! i usually dont make new greenames often, but i do like having a small convo w people. im usually around the roblox areas (near bakery and that one spot that used to be the phighting area...) w2i most of the time, im more comfy talking 2 people in private (im also afk alot sowwy) feel free to c+h, i dont mind, no need to ask!! also, feel free 2 friend me on roblox ^w^, i barely get to play with any1 there</p>
+i have a slight trouble w/ socially interacting 3: but i may be more open to u if youre chill, and have the same interests as me!! i usually dont make new greenames often, but i do like having a small convo w people. sowwy if youre on my friends list and yet i still dont talk 2 u much...i usually dont talk to people unless they start the convo first. im usually around the roblox areas (near bakery and that one spot that used to be the phighting area...) w2i most of the time, im more comfy talking 2 people in private (im also afk alot sowwy) feel free to c+h, i dont mind, no need to ask!! also, feel free 2 friend me on roblox ^w^, i barely get to play with any1 there</p>
 
 ![ihasafacelulz-jx1dx1](https://github.com/user-attachments/assets/34660624-f7ee-4083-8637-850e1862f953)
 
