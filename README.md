@@ -38,7 +38,7 @@ i have a slight trouble w/ socially interacting 3: but i may be more open to u i
   <ins> +more!! </ins>
 
 *phighting, regretevator, kaleidoscope, block tales, sprunki, cookie run, let him go, roblox args (mainly those posted by senprista), tr:ud,
-animation vs animator, forsaken, dandys world, die of death, hangout game series (does this even have a fandom), orsion (once it releases), ^_^ (the roblox game)*
+animation vs animator, forsaken, dandys world, die of death, hangout game series (does this even have a fandom), orison (once it releases), ^_^ (the roblox game)*
 
 <p align="center">
   <ins> music!! </ins>
