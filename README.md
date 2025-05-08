@@ -1,6 +1,6 @@
 ![Tumblr_l_35319059137720](https://github.com/user-attachments/assets/e692680f-f8d3-4413-a4c9-9466bd4a0ae6)
 
-![](https://komarev.com/ghpvc/?username=sodapackyaoi&label=>w<&color=red)
+![](https://komarev.com/ghpvc/?username=sodapackyaoi&label=>w<&color=blue)
   
 <p align="center">
 <code style=color:red>𝙇𝙊𝙑𝙀𝙎𝙄𝘾𝙆, 𝘾𝘼𝙉𝙉𝙄𝘽𝘼𝙇!</code>
@@ -42,6 +42,9 @@ animation vs animator, forsaken, dandys world, die of death, hangout game series
   <ins> music!! </ins>
   
 *femtanyl, vocaloid (vane lily, maretu, deco 27, 32ki, sawtowne, nakiso, kikuo, iyowa, ro2noki, cosmo@bosou-p, kairiki bear, mafu mafu and more) nastyona, tv girl, mitski, cg5, jack stauber, lemon demon, will wood, tally hall, little purr man, stomach book, sir mix-alot, machine girl, milkypossum, mother mother, mr kitty, spellcasting, multiple roblox osts and more*
+
+![3307dc2e0ed2981983be74208b4f1fb6](https://github.com/user-attachments/assets/5f464439-7658-4748-9798-c839efb8bca1)
+
 
 ![Tumblr_l_35319059137720](https://github.com/user-attachments/assets/53ff0b31-0bf4-4516-8846-a2ab31945e6e)
 
