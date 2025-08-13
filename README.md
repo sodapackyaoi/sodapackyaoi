@@ -1,9 +1,9 @@
 ![Tumblr_l_291349672187518](https://github.com/user-attachments/assets/b997cfae-304e-4ef2-bf2a-264205becda2)
 
-![](https://komarev.com/ghpvc/?username=sodapackyaoi&label=>w<&color=red)
-  
+<img width="1500" height="871" alt="BEAUTIFUL TASTE!~_20250720165104" src="https://github.com/user-attachments/assets/415e4f85-fbe3-473b-9664-97b6fcb1ef6f" />
+
 <p align="center">
-<code style=color:red>𝘽𝙀𝘼𝙐𝙏𝙄𝙁𝙐𝙇 𝙏𝘼𝙎𝙏𝙀~!</code>
+<code style=color:red>^_^</code>
 </p>
 
 <p align="center"> <ins> <code style="color : red">nyxx / nix </ins> ✦ she / her ✧ <ins> aro-ace </ins> ✦ minor ✧ <ins> nov. 12 </ins> ✧ 🇵🇭 ✦ gmt +8</code> </p> 
